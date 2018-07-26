@@ -1,2 +1,4 @@
 # kanobx5.github.io
-私のブログ
+![](https://i.ytimg.com/vi/0hBE2bVKeHY/maxresdefault.jpg)
+# わたしのブログ
+ ツクリカタゼンゼンワカラン
